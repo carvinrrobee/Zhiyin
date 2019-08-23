@@ -1,2 +1,0 @@
-# Zhiyin
-Lawyer in China
